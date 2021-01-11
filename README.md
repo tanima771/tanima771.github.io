@@ -1,1 +1,1 @@
-# tanima771.github.io
+# tanima771.com
